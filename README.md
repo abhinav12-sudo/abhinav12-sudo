@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Abhinav Tomar currently pursuing B.TECH in Information technology from N.I.T Srinagar.<br><br>
+I'm Abhinav Tomar currently pursuing B.Tech in Information technology from N.I.T Srinagar.<br><br>
 
 
 ## 🌐 Socials:
